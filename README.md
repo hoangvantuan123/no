@@ -93,7 +93,7 @@ We are going to go pub at 10.00 pm, and go to watch cinema at 2.00 am. If you wa
 Thanks for your present. I’m really like this suit. It’s suitable to me. The winter is coming. This pair of gloves is for you. Thank you very much indeed. Your friend Linh.
 
 
-------------------
+-------------------------
 
 Doan van 100 chu
 - This is the part of an email you receive fron an English friend We had a big family party last
@@ -156,7 +156,215 @@ Please write to me soon
 - what can we do to help protect the envirnment?
 + In order to have measures to overcome environmental pollution, we need to implement it in the long run. Plant a lot of trees, Trees are the source of oxygen for the atmosphere and a source of carbon gas, reducing soil erosion and ecosystems. Using materials from nature, Using clean energy, Using clean energy, Treating pollution in wastewater before discharging into the environment..
 
+
+----------------------
+
+Part5 : Dien Tu vao doan van.
+    • The actress Emma Watson grew: trained, Alhough, series, made, all,  Continued,spent, since, several, also.
+    • The city of Glasgow: plenty, few, and, for, trip, longer, depart, fancy, fares, view.
+    • People have always tried: predict, signs, following, provided, likely, however, accurate, chance, approaching, take.
+    • Alexander Graham Bell: developed, should, sounds, trained, interested, climate, that, similar, along, all.
+    • The art of drawing : very, soon, true, learnt, of, need, subject , time, more, which, limit .
+    • Wool : Certain, mostly, keeps, protect, contains, simplest, remover, but, rather, became.
+    • Finding Gold __ Most people: agree, gave, instead, spent, among, basic _ coolect, but, every, short, search.
+    • A cave containing : 200 , at, what, took, kept, prevent, realise, damage, including, still, until.
+    • The Atacama Desert: __ in, falls, that, any, actually, take, those, lack, fact, attracting,.
+    • Alpacas:__ provided, mainly, arrived, arrived, replace, until, qualitis, after, range, also, therefore
+    • Horses: __ sorts, known, well , pulling, common, amounts, between, every, over, plenty.
+    • James Cook:  __ Joined, it, organized, on, sure, save, caused, discover, many, during.
+    • Chocolate__ when the Spanish: called, because, make, instead, delivered, into, Both, can, which, supplices.
+    • Jacqui Swift __ when the Spanish:  Moment, which, decided, appear, until, take, member, mistakes, well, is
+
+
+-----------------------
+
+ĐIỀN TỪ CHO CÂU KHÔNG ĐỔI NGHĨA
+
+    1. Last week, a friend of mine visited the Santiago Bernabeu football stadium.
+    2. It was the first time he had been to this stadium
+    3. You have to send/ pay $9 to go on a tour of the stadium 
+    4. The tour includes a visit to the dressing room
+    5. Santiago Bernabeu is bigger than	any other football stadium in madrid
+
+    6. It doesn’t take you long to fill in a job application form
+    7. At a job interview they will ask, What jobs did you do before? 
+    8. It’s important not to be	late for work
+    9. Some people prefer working outdoors to working inside
+    10. Some firms give their staff free uniforms
+
+    11. Why don’t you buy a second- hand car -, Ben? 
+    12. Ben couldn’t aflord to buy a new car
+    13. Ben got in touch with the owner of a car for sale after seeing an advert
+    14. Ben decided he liked the car as soon as he drove it 
+    15. The car was less expensive than Ben had expected
+
+    16. Jessica hadn’t been on a train for several months
+    17. Jessica’s ticket was bought in advance online
+    18. The train was so/ that crowded that it was difficult to find a seat
+    19. Jessica asked ‘ didn’t what time will we arrive in York?
+    20. Jessica find the journey boring because she had a good book
+
+    21. Last week, Beth was sent an advertisement for a new clothes website.
+    22. There was a sale on the website, so Beth bought a dress.
+    23. The dress wasn’t long enough for Beth.
+    24. The dress wasn’t as colorful as the picture on the website.
+    25. Her friend said, ‘you should ask for your money back’. 
+
+    26. I have known Chris and his brother Karl for five years.
+    27. Chris is always keen to go out and meet new people. 
+    28. He can’t stand spending time alone. 
+    29. Karl isn’t the same as Chris.
+    30. He’s less sociable than his brother.
+
+    31. August is the hottest month of the year.
+    32. My Spanish friend advised me not to stay in the hot sun for too long
+    33. I’s rather stay in the shade when it’s very hot.
+    34. Most years, there isn’t enough rain in the south of the country.
+    35. People are encouraged to use water carefully by the government.
+
+
+----------------------------------
+- NGHE DIEN TU
+    • Student running ( the club meet at the) : Football stadium , email, sports bag, wate bottle, shirt, beaton.
+    • Working in a forrest in new ( steve had accommodation): tent, meals, path, map, rabbits, flight.
+    • Study Programme ( courses available on) : artists , Fridays, groups, lessons, timetable.
+    • Film at the science museum ( Country it is about) : Greenland , 5p.m, computer, spaceship, top, Friday.
+    • This week’s reviews (The films jungle): cartoon, chef, lake, movies, restaurant, January 28th.
+    • Training session for new (the training manager) : Hickets, ground, Thursday, bus, food, Id card.
+    • Extreme Bootcamp (the) : army , bridge, jogging, trainers, 30th September, shawes.
+    • Writers of Tomorrow: age, a number, a kind of, something, a name, a month.
+    • New Magazine: Good living , fish, Salad, Rice, party, 2.49
+    • Climbing in North Wales: 1552, September, walking boots, route, tent, play, table, tennis.
+    • Desert train trip: 45 minutes, oil, plants, Rocks, souvenirs, basket.
+    • Outdoor cinema: hill , Sunset, cushion, 5, picnic, cityents.
+    • Central Museum: 1921, Japanese, gift, hotel, train station, group.
+
+
+---------------------
+
+Part 4: Nghe chon dung sai:
+1.  Robin is surprised by how much recycling people do in his town => A 
+    •  AABABA 
+Lisa thinks it => A  || Robin belives there => B  || Lisa thinks that => A  || Robin and Lisa => B  ||Robin thins that => A
+
+ 2. Ted thinks he wastes time looking at Intergram => B 
+    • BBAAAB
+Ted is surprised => B || Sylvia admits that => A || Ted and Sylvia => A || Sylvia thnks that => A ||Ted and Sylvia both => B 
+3. Sophia thinks that Japanese is a difficult language to learn => A  
+    • ABABAA 
+Aaron and Sophia => B ||Aaron thinks he => A || Sophia feels worried =>B ||Aaron thinks writting => A ||Both Aaron and Sophia => A  
+4. Peter wants to take his sister to the party => B  
+    • Anne hopes the party will be bigger than the one last year  => B  
+    • Peter thinks the new college hall => A  
+    • Peter thinks DJs play a good => B  
+    • Anne hopes the college cafeteria will supply the food for the party =>B  
+    • Peter is confident the party will end after midnight => A 
+5. They agree that the last show in the series was complicated => A  
+    • James believes that the series is successful => A  
+    • They both admire the main character’s => B  
+    • Martha thinks that the main character has similar => A  
+    • James was surprised to find  => B  
+    • They both plan to watch the serise again => B  
+6. Natasha has decided to take the day off work to go running => B  
+    • Colin found running to work was bad for his health => A  
+    • Natasha would prefer to go running outside => A  
+    • Natasha would like to wear her sports clothes => B  
+    • Natasha will run in the big race bacause => B  
+    • Colin and natasha will prepare for the big race => B  
+7. Claire has read about the football tour in a newspaper => B  
+    • Claire is worried about being the youngest  =>  B  
+    • Tom feels that school work is more  => A  
+    • Claire intends  => B
+    • Claire thinks  => B
+    • Tom agrees  => B
+8. Jack thinks that his driving  => A 
+    • Sarah agrees that learning to brake => A  
+    • Jack thinks he will be nervous on the day => B  
+    • Sarah feels sure that jack will pass => B  
+    • Sarah allows other people => A  
+    • Jack intends to save his money => B  
+9. Karl says it’s been difficult  => B  
+    • Karl has had problem => B  
+    • Laura is surprised => B  
+    • Karl is uncertain => A  
+    • Laura is missing => A  
+    • Laura feels that she’s too => A  
+10. Carla is surprised => B  
+    • Sam say that last year => A  
+    • Carla enjoyed preparing => B  
+    • Sam tells Carla => B  
+    • Sam encourages Carla => B  
+    • Sam realises that he must => A  
+
+---------------------
+
+Part 2: Cho 5 bài miêu tả về 1 người/ nhóm người và 8 đoạn văn ngắn 
+
+Sports classes 
+    • Chloe enjoys team sports but doesn’t want to play in competitions..... to buy expensive equipment. => Active plus! This is a great class for people who ..... and a monthly report on how your fitness is improving. 
+    • Mike isn’t very fit.... He’d also like to see how he is improving over time. => Water-cise! Have run and get fit at your local sports.... plus the chance to gain progress certificates. 
+    • Sofia loves sport but is recovering from a serious injury.... her advice on exercises she can do at home. => Fitness for all. If you’re looking for a gentle, low-cost.... classes: every Tuesday from 2-4 pm. 
+    • Jack is very fit and is planning a challenging 200 km run.... He wants to train indoors and outdoors. => Go for it! This is a class for people who want to push.... All equipment provided. 
+    • Tara takes sport seriously.... She isn’t free from Monday to Friday. => Rising starts. We believe sports are for winners!... or book an individual lesson with one of our trainers. 
+Activity clubs 
+    • Emma loves using her imagination in a creative way..... to visit places and see creative people at work. => Action! We are a film club, but we don’t watch.... to film studios to see how the professionals do things. 
+    • Marco loves making things, and he... a skill that he can use outside the class. => A work of food. We can teach you to prepare.... you might decide to become a professional chef one day! 
+    • Amina is interested in serious issues.... she would also like to discuss her ideas and opinions with other people. => Think! Do you want to know more.... At out next meeting we are showing a flim about earthquake rescue teams. 
+    • Niko enjoys going to different places and meeting.... He’s especially interested in history. => City explorers. Get out and about with City.... cities to compare information and experiences. 
+    • Erica is keen to help other people.... she can use in a job when she finishes her studies. => Party plus. At party plus, we are looking for new people.... but you’ll have a lot to other future employers, and you’ll make a difference! 
+The best holidays 
+    • George wants a holiday with a big group of friend.... and some in the group have young children. => Active fun. Looking for an active holiday?.... Price includes accommodation and breakfast. 
+    • Ana loves to be near the sea.... She enjoys being active and learning new skills. => Making waves. Our learn- to- sail holiday in.... Price includes accommodation but not food. 
+    • Harry just want to relax and have fun by the sea.... prefer to pay for everything together. => Golden sands Beach club. There’s lots to do at the... All meals and drinks are include in the price! 
+    • Jess wants to travel abroad and learn about.... She would also like to see some performances. => Culture shocks. Get away from the usual tourist... a full programme of cultural events includes some amazing dance shows! 
+    • Greg doesn’t like crowded beaches and wants a peacerful.... happy to send some time alone with a good book. => Forest camp. Get away from it all at Welldate.... you can just enjoy time on your own listening to the sounds of the forest. 
+On TV tonight 
+    • Sandrine and her ten – year – old daughter, =>  Quicksteps. Each week, well- known faces from the world of television 
+    • Tim has an amazing memory fo facts on range. => Taskmaster. Can you beat the four members of the public 
+    • Simon enjoys murder mysteries, and likes the challenge of working.=>  Inspector blake. A first- division football player has beautiful wife 
+    • Mariella loves skiing and enjoys watching winter sports. => Whiteout. All the lates action from the slopes, including men’s and women’s 
+    • Ned and jake are computer programmers.  => Top Team. A return of the jokey quiz show, in wich teams of famous sports 
+    • 
+Skiing holiday centres 
+    • Tomoko hasn’t skied before and wants =>  Ice Mountain. Come to this beautiful 
+    • Alex and helen are going skiing.= > Fairview. This historic mountain 
+    • Matt and martin are looking for some exciting.  => Windy Pine. The ski and snowboard runs here are high in the 
+    • Isabel and her 14 – year – old son , Juan are expert. =>  ROSE VALLEY. This area has much to often 
+    • Chris and his wife Jo are not keen skiers. =>  Eagle’s Nest. There’s skiling in this area for skiers of all abilities 
+Watersports centres 
+    • Victor and Olga need a pesonal instructor to teach. => Marston Centre. The marston centre offers courses 
+    • Felipe wants a weekend training session for his staff. =>  Aqua Sports. Aqua Sports ofters company team-building 
+    • Harry wants to find a centre where top people in watersprts.=>  Padcaster centre. The huge lake 
+    • Tania and paolo can alresdy waterski. => Marinewater. The website shows theis whole range 
+    • Laura and Adam want to celebrate laura’s birthday at a watersport centre. => Camford Centre. The C C offers sailing for people who love relaxing 
+Second-hand bookshops 
+    • Yang is looking for used copies of modern novels for her book group. => Holt’s. Although its prices are high 
+    • Stefan loves beautiful art books but would like to check .  => Scrimshaw’s has a huge selection of books showing 
+    • Scott has been unable to get a particular.  => Regal. . Here you’ll find the country 
+    • Jasmin is seting up a library of classic fiction. => Topping’s. You’ll only find good-quality 
+    • Ian wants a quiet bookshop where he can relax.  => Bales. This shop is famous for its range of titles 
+    • Susanna only has a couple of hourse free. => Park Stables. 
+    • Kemal is looking for some excitement. => Swallow Aviation 
+    • Frank and Sabine want to go for a walk. => Liama Tresks 
+    • Charlotte is flying to the brazillian.  => Survival School 
+    • Tom wants to explore the natural. = >Country Lanes 
+Recommended Museum in the Area 
+    • Jake and Maureen have different interests.=>  Fishing centre 
+    • Melanie is a history teacher. => Hillcrest museum 
+    • Roger is keen to find out about different form of transport. => Horsepower museum 
+    • Kazuko studies english literature. => Shandy Hall 
+    • Nick is more interested in learning about the countryside. => Castle Museum 
+City Hotels 
+    • Nuala and Jaime want to celebrate. => Mars 
+    • Sebastian want to do some exercise at this hotel. => Archway 
+    • Alex and Mel want a room a traditional hotel. => Haussman 
+    • Steve want to stay overnight in a central hotel. => Windmill 
+    • Holly and Lucia are travelling around Eu. => Hi-Tech 
+
+
 ```
+
+
 
 ```text
 
@@ -250,7 +458,7 @@ We are going to go pub at 10.00 pm, and go to watch cinema at 2.00 am. If you wa
 Thanks for your present. I’m really like this suit. It’s suitable to me. The winter is coming. This pair of gloves is for you. Thank you very much indeed. Your friend Linh.
 
 
--------------------------
+------------------
 
 Doan van 100 chu
 - This is the part of an email you receive fron an English friend We had a big family party last
@@ -313,210 +521,4 @@ Please write to me soon
 - what can we do to help protect the envirnment?
 + In order to have measures to overcome environmental pollution, we need to implement it in the long run. Plant a lot of trees, Trees are the source of oxygen for the atmosphere and a source of carbon gas, reducing soil erosion and ecosystems. Using materials from nature, Using clean energy, Using clean energy, Treating pollution in wastewater before discharging into the environment..
 
-----------------------------------
-
-- NGHE DIEN TU
-    • Student running ( the club meet at the) : Football stadium , email, sports bag, wate bottle, shirt, beaton.
-    • Working in a forrest in new ( steve had accommodation): tent, meals, path, map, rabbits, flight.
-    • Study Programme ( courses available on) : artists , Fridays, groups, lessons, timetable.
-    • Film at the science museum ( Country it is about) : Greenland , 5p.m, computer, spaceship, top, Friday.
-    • This week’s reviews (The films jungle): cartoon, chef, lake, movies, restaurant, January 28th.
-    • Training session for new (the training manager) : Hickets, ground, Thursday, bus, food, Id card.
-    • Extreme Bootcamp (the) : army , bridge, jogging, trainers, 30th September, shawes.
-    • Writers of Tomorrow: age, a number, a kind of, something, a name, a month.
-    • New Magazine: Good living , fish, Salad, Rice, party, 2.49
-    • Climbing in North Wales: 1552, September, walking boots, route, tent, play, table, tennis.
-    • Desert train trip: 45 minutes, oil, plants, Rocks, souvenirs, basket.
-    • Outdoor cinema: hill , Sunset, cushion, 5, picnic, cityents.
-    • Central Museum: 1921, Japanese, gift, hotel, train station, group.
-
-
-
----------------------
-
-Part 4: Nghe chon dung sai:
-1.  Robin is surprised by how much recycling people do in his town => A 
-    •  AABABA 
-Lisa thinks it => A  || Robin belives there => B  || Lisa thinks that => A  || Robin and Lisa => B  ||Robin thins that => A
-
- 2. Ted thinks he wastes time looking at Intergram => B 
-    • BBAAAB
-Ted is surprised => B || Sylvia admits that => A || Ted and Sylvia => A || Sylvia thnks that => A ||Ted and Sylvia both => B 
-3. Sophia thinks that Japanese is a difficult language to learn => A  
-    • ABABAA 
-Aaron and Sophia => B ||Aaron thinks he => A || Sophia feels worried =>B ||Aaron thinks writting => A ||Both Aaron and Sophia => A  
-4. Peter wants to take his sister to the party => B  
-    • Anne hopes the party will be bigger than the one last year  => B  
-    • Peter thinks the new college hall => A  
-    • Peter thinks DJs play a good => B  
-    • Anne hopes the college cafeteria will supply the food for the party =>B  
-    • Peter is confident the party will end after midnight => A 
-5. They agree that the last show in the series was complicated => A  
-    • James believes that the series is successful => A  
-    • They both admire the main character’s => B  
-    • Martha thinks that the main character has similar => A  
-    • James was surprised to find  => B  
-    • They both plan to watch the serise again => B  
-6. Natasha has decided to take the day off work to go running => B  
-    • Colin found running to work was bad for his health => A  
-    • Natasha would prefer to go running outside => A  
-    • Natasha would like to wear her sports clothes => B  
-    • Natasha will run in the big race bacause => B  
-    • Colin and natasha will prepare for the big race => B  
-7. Claire has read about the football tour in a newspaper => B  
-    • Claire is worried about being the youngest  =>  B  
-    • Tom feels that school work is more  => A  
-    • Claire intends  => B
-    • Claire thinks  => B
-    • Tom agrees  => B
-8. Jack thinks that his driving  => A 
-    • Sarah agrees that learning to brake => A  
-    • Jack thinks he will be nervous on the day => B  
-    • Sarah feels sure that jack will pass => B  
-    • Sarah allows other people => A  
-    • Jack intends to save his money => B  
-9. Karl says it’s been difficult  => B  
-    • Karl has had problem => B  
-    • Laura is surprised => B  
-    • Karl is uncertain => A  
-    • Laura is missing => A  
-    • Laura feels that she’s too => A  
-10. Carla is surprised => B  
-    • Sam say that last year => A  
-    • Carla enjoyed preparing => B  
-    • Sam tells Carla => B  
-    • Sam encourages Carla => B  
-    • Sam realises that he must => A  
-
-----------------------
-
-Part5 : Dien Tu vao doan van.
-    • The actress Emma Watson grew: trained, Alhough, series, made, all,  Continued,spent, since, several, also.
-    • The city of Glasgow: plenty, few, and, for, trip, longer, depart, fancy, fares, view.
-    • People have always tried: predict, signs, following, provided, likely, however, accurate, chance, approaching, take.
-    • Alexander Graham Bell: developed, should, sounds, trained, interested, climate, that, similar, along, all.
-    • The art of drawing : very, soon, true, learnt, of, need, subject , time, more, which, limit .
-    • Wool : Certain, mostly, keeps, protect, contains, simplest, remover, but, rather, became.
-    • Finding Gold __ Most people: agree, gave, instead, spent, among, basic _ coolect, but, every, short, search.
-    • A cave containing : 200 , at, what, took, kept, prevent, realise, damage, including, still, until.
-    • The Atacama Desert: __ in, falls, that, any, actually, take, those, lack, fact, attracting,.
-    • Alpacas:__ provided, mainly, arrived, arrived, replace, until, qualitis, after, range, also, therefore
-    • Horses: __ sorts, known, well , pulling, common, amounts, between, every, over, plenty.
-    • James Cook:  __ Joined, it, organized, on, sure, save, caused, discover, many, during.
-    • Chocolate__ when the Spanish: called, because, make, instead, delivered, into, Both, can, which, supplices.
-    • Jacqui Swift __ when the Spanish:  Moment, which, decided, appear, until, take, member, mistakes, well, is
-
------------------------
-
-ĐIỀN TỪ CHO CÂU KHÔNG ĐỔI NGHĨA
-
-    1. Last week, a friend of mine visited the Santiago Bernabeu football stadium.
-    2. It was the first time he had been to this stadium
-    3. You have to send/ pay $9 to go on a tour of the stadium 
-    4. The tour includes a visit to the dressing room
-    5. Santiago Bernabeu is bigger than	any other football stadium in madrid
-
-    6. It doesn’t take you long to fill in a job application form
-    7. At a job interview they will ask, What jobs did you do before? 
-    8. It’s important not to be	late for work
-    9. Some people prefer working outdoors to working inside
-    10. Some firms give their staff free uniforms
-
-    11. Why don’t you buy a second- hand car -, Ben? 
-    12. Ben couldn’t aflord to buy a new car
-    13. Ben got in touch with the owner of a car for sale after seeing an advert
-    14. Ben decided he liked the car as soon as he drove it 
-    15. The car was less expensive than Ben had expected
-
-    16. Jessica hadn’t been on a train for several months
-    17. Jessica’s ticket was bought in advance online
-    18. The train was so/ that crowded that it was difficult to find a seat
-    19. Jessica asked ‘ didn’t what time will we arrive in York?
-    20. Jessica find the journey boring because she had a good book
-
-    21. Last week, Beth was sent an advertisement for a new clothes website.
-    22. There was a sale on the website, so Beth bought a dress.
-    23. The dress wasn’t long enough for Beth.
-    24. The dress wasn’t as colorful as the picture on the website.
-    25. Her friend said, ‘you should ask for your money back’. 
-
-    26. I have known Chris and his brother Karl for five years.
-    27. Chris is always keen to go out and meet new people. 
-    28. He can’t stand spending time alone. 
-    29. Karl isn’t the same as Chris.
-    30. He’s less sociable than his brother.
-
-    31. August is the hottest month of the year.
-    32. My Spanish friend advised me not to stay in the hot sun for too long
-    33. I’s rather stay in the shade when it’s very hot.
-    34. Most years, there isn’t enough rain in the south of the country.
-    35. People are encouraged to use water carefully by the government.
-
----------------------
-
-Part 2: Cho 5 bài miêu tả về 1 người/ nhóm người và 8 đoạn văn ngắn 
-
-Sports classes 
-    • Chloe enjoys team sports but doesn’t want to play in competitions..... to buy expensive equipment. => Active plus! This is a great class for people who ..... and a monthly report on how your fitness is improving. 
-    • Mike isn’t very fit.... He’d also like to see how he is improving over time. => Water-cise! Have run and get fit at your local sports.... plus the chance to gain progress certificates. 
-    • Sofia loves sport but is recovering from a serious injury.... her advice on exercises she can do at home. => Fitness for all. If you’re looking for a gentle, low-cost.... classes: every Tuesday from 2-4 pm. 
-    • Jack is very fit and is planning a challenging 200 km run.... He wants to train indoors and outdoors. => Go for it! This is a class for people who want to push.... All equipment provided. 
-    • Tara takes sport seriously.... She isn’t free from Monday to Friday. => Rising starts. We believe sports are for winners!... or book an individual lesson with one of our trainers. 
-Activity clubs 
-    • Emma loves using her imagination in a creative way..... to visit places and see creative people at work. => Action! We are a film club, but we don’t watch.... to film studios to see how the professionals do things. 
-    • Marco loves making things, and he... a skill that he can use outside the class. => A work of food. We can teach you to prepare.... you might decide to become a professional chef one day! 
-    • Amina is interested in serious issues.... she would also like to discuss her ideas and opinions with other people. => Think! Do you want to know more.... At out next meeting we are showing a flim about earthquake rescue teams. 
-    • Niko enjoys going to different places and meeting.... He’s especially interested in history. => City explorers. Get out and about with City.... cities to compare information and experiences. 
-    • Erica is keen to help other people.... she can use in a job when she finishes her studies. => Party plus. At party plus, we are looking for new people.... but you’ll have a lot to other future employers, and you’ll make a difference! 
-The best holidays 
-    • George wants a holiday with a big group of friend.... and some in the group have young children. => Active fun. Looking for an active holiday?.... Price includes accommodation and breakfast. 
-    • Ana loves to be near the sea.... She enjoys being active and learning new skills. => Making waves. Our learn- to- sail holiday in.... Price includes accommodation but not food. 
-    • Harry just want to relax and have fun by the sea.... prefer to pay for everything together. => Golden sands Beach club. There’s lots to do at the... All meals and drinks are include in the price! 
-    • Jess wants to travel abroad and learn about.... She would also like to see some performances. => Culture shocks. Get away from the usual tourist... a full programme of cultural events includes some amazing dance shows! 
-    • Greg doesn’t like crowded beaches and wants a peacerful.... happy to send some time alone with a good book. => Forest camp. Get away from it all at Welldate.... you can just enjoy time on your own listening to the sounds of the forest. 
-On TV tonight 
-    • Sandrine and her ten – year – old daughter, =>  Quicksteps. Each week, well- known faces from the world of television 
-    • Tim has an amazing memory fo facts on range. => Taskmaster. Can you beat the four members of the public 
-    • Simon enjoys murder mysteries, and likes the challenge of working.=>  Inspector blake. A first- division football player has beautiful wife 
-    • Mariella loves skiing and enjoys watching winter sports. => Whiteout. All the lates action from the slopes, including men’s and women’s 
-    • Ned and jake are computer programmers.  => Top Team. A return of the jokey quiz show, in wich teams of famous sports 
-    • 
-Skiing holiday centres 
-    • Tomoko hasn’t skied before and wants =>  Ice Mountain. Come to this beautiful 
-    • Alex and helen are going skiing.= > Fairview. This historic mountain 
-    • Matt and martin are looking for some exciting.  => Windy Pine. The ski and snowboard runs here are high in the 
-    • Isabel and her 14 – year – old son , Juan are expert. =>  ROSE VALLEY. This area has much to often 
-    • Chris and his wife Jo are not keen skiers. =>  Eagle’s Nest. There’s skiling in this area for skiers of all abilities 
-Watersports centres 
-    • Victor and Olga need a pesonal instructor to teach. => Marston Centre. The marston centre offers courses 
-    • Felipe wants a weekend training session for his staff. =>  Aqua Sports. Aqua Sports ofters company team-building 
-    • Harry wants to find a centre where top people in watersprts.=>  Padcaster centre. The huge lake 
-    • Tania and paolo can alresdy waterski. => Marinewater. The website shows theis whole range 
-    • Laura and Adam want to celebrate laura’s birthday at a watersport centre. => Camford Centre. The C C offers sailing for people who love relaxing 
-Second-hand bookshops 
-    • Yang is looking for used copies of modern novels for her book group. => Holt’s. Although its prices are high 
-    • Stefan loves beautiful art books but would like to check .  => Scrimshaw’s has a huge selection of books showing 
-    • Scott has been unable to get a particular.  => Regal. . Here you’ll find the country 
-    • Jasmin is seting up a library of classic fiction. => Topping’s. You’ll only find good-quality 
-    • Ian wants a quiet bookshop where he can relax.  => Bales. This shop is famous for its range of titles 
-    • Susanna only has a couple of hourse free. => Park Stables. 
-    • Kemal is looking for some excitement. => Swallow Aviation 
-    • Frank and Sabine want to go for a walk. => Liama Tresks 
-    • Charlotte is flying to the brazillian.  => Survival School 
-    • Tom wants to explore the natural. = >Country Lanes 
-Recommended Museum in the Area 
-    • Jake and Maureen have different interests.=>  Fishing centre 
-    • Melanie is a history teacher. => Hillcrest museum 
-    • Roger is keen to find out about different form of transport. => Horsepower museum 
-    • Kazuko studies english literature. => Shandy Hall 
-    • Nick is more interested in learning about the countryside. => Castle Museum 
-City Hotels 
-    • Nuala and Jaime want to celebrate. => Mars 
-    • Sebastian want to do some exercise at this hotel. => Archway 
-    • Alex and Mel want a room a traditional hotel. => Haussman 
-    • Steve want to stay overnight in a central hotel. => Windmill 
-    • Holly and Lucia are travelling around Eu. => Hi-Tech 
-
-
 ```
-
