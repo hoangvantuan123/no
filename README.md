@@ -1,4 +1,6 @@
 
+```
+
 | doan văn 1 | Header 2 |
 |----------|----------|
 | You arranged to go to the cinema with your friend **George** on Friday evening, but now you aren’t free. Write an email: | Hi George, I’m writing about Friday. You wanted to go to the cinema together, remember? I’m sorry, but I can’t come because my grandparents are coming to visit. You could come to my house on Sunday instead? We could watch the new Bond movie. Hoan/Duc |
@@ -20,7 +22,7 @@
 | You want to invite **Maria**, an English-speaking student who is staying with you, to go out tonight with you and your friends. Write: | Are you free tonight? My friends and I will go to the pub and watch cinema all night; shall we go together? We are going to the pub at 10.00 pm and go to watch cinema at 2.00 am. If you want to go, come to my house at 9.00 pm. |
 | You have just received a present from some friends who live in the **USA**. Write a card: | Dear John, Thanks for your present. I really like this suit. It’s suitable for me. The winter is coming. This pair of gloves is for you. Thank you very much indeed. Your friend, Linh. |
 
-
+```
 
 
 
